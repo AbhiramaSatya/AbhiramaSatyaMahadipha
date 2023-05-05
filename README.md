@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **abhiramasatyamahadipha24@gmail.com**
 
-- ⚡ Fun fact **Im a ambivert**
+- ⚡ Fun fact **Im an ambivert**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
